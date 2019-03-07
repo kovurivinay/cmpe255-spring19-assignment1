@@ -7,6 +7,7 @@ Review
 Sign on to a reasonable deal and then watch your monthly rent increase LIKE CRAZY. They are banking on the fact that you won't make the effort to move your stuff to another facility. Also, I signed up for auto-pay and naturally, the credit cards eventually expire. They are merciless about giving you a 25% late fee and wont budge on reversing the charge. Ridiculous, unethical & unscrupulous.
 Predicted Review --  negative review
 Yelp Review based on 5 Star Rating -- negative review
+
 Review
 -------------------------------------------------
 
@@ -18,6 +19,7 @@ Be nice like John....
 Definitely recommend this place.
 Predicted Review --  positive review
 Yelp Review based on 5 Star Rating -- positive review
+
 Review
 -------------------------------------------------
 
@@ -65,6 +67,7 @@ Review
 fabrege  gave me sum maynoaize 4 my homefry and i took it hom and it was good 2 eat lter  but then i ate it and left it on the floor and my big toe got mayoniaise on it :S  just a lil confused :S
 Predicted Review --  negative review
 Yelp Review based on 5 Star Rating -- positive review
+
 Review
 -------------------------------------------------
 
